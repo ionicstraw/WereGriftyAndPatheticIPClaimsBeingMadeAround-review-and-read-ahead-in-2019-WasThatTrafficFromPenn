@@ -9,3 +9,7 @@ I think all Jason wanted was for me to come back to Penn after I resigned LOL ha
 we own this loser btch with no life, like a good percentage of his thought process throughout the day has to do with us, its really funny bc we dont care about him hahaha
 
 i dont go on jasons social media, i feel like its absolutely insane, i just went on it today for like 2 mins, i think this loser btch is beyond insane, i think hes on a lot of medication that gets him up on the morning, he has no plan in life and is deeply depressed, its sad that hes stalking us
+
+i mean look at the posts hes been making on his social media, a sane normal happy person would not be making posts like that, so, hes just an insane person
+
+like i said, choose a 3 digit number, thats how many millions we'd sue penn for, let him throw up all over the internet who cares hes ugly as hell, jason lives a meaningless life imo and nobody likes him
